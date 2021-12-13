@@ -10,15 +10,15 @@ Essas são algumas receitas deliciosas e fáceis de fazer. Todas testadas e apro
 
 * ##### Pão Recheado de Calabresa 🥟
 
-* **Pão Caseiro 🍞**
+* ##### Pão Caseiro 🍞
 
 * ##### Salada Russa 🥗
 
-* **Salada de Repolho 🥗**
+* ##### Salada de Repolho 🥗
 
-* **Creme de Palmito** 🥣
+* ##### Creme de Palmito 🥣
 
-* **Sopa de legumes** 🍲
+* ##### Sopa de legumes 🍲
 
-* **Torta de Morango** 🥧
+* ##### Torta de Morango 🥧
 
